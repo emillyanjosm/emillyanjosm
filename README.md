@@ -14,6 +14,10 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+🎓 Digital design student
+🎨 Interested in **UX/UI** and new technologies
+🌱 I am a volunteer in a research project at UFC, learning about the development of methods for using the METAVERSE. I am also involved in other UX programs outside the university >:)
 
-🌱 I’m currently learning ... 
-Currently, I am a volunteer in a research project at UFC, learning about the development of methods for using the METAVERSE. I am also involved in other UX programs outside the university >:)
+## 📫 How to find me 
+- LinkedIn: emillyanjos (www.linkedin.com/in/emillyanjos)  
+- Email: emillyanjos@alu.ufc.br
